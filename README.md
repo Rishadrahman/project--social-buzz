@@ -7,3 +7,4 @@ Accenture North America Data Analytics and Visualization Job Simulation on Forag
 
 •	Prepared a PowerPoint deck and video presentation to communicate key insights for the client and internal stakeholders
 
+
